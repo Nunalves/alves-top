@@ -1,2 +1,2 @@
 # About me
-I'm cool guy. Trust me.
+I'm a cool guy. Trust me.
